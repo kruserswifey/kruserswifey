@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @kruserswifey
 - 👀 I’m interested in finding the hidden meaning in numbers. specifically dates  
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+
 - 📫 How to reach me ...please email me
 - jensonshauna@gmail.com
 
